@@ -1,2 +1,2 @@
 # ahimana-
-do alll document kdkffkmsmmfnsndnfnnsnfnfnfnnsnfnfndnmddmmddnfn
+do all task gice by the teachers
